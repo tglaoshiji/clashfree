@@ -1,4 +1,4 @@
-# clash节点、免费clash节点、clash订阅链接、clash免费节点、clash科学上网、clash翻墙、clash for windows、clash教程 每日更新  更新时间 2025-4-17 02:50:07  
+# clash节点、免费clash节点、clash订阅链接、clash免费节点、clash科学上网、clash翻墙、clash for windows、clash教程 每日更新  更新时间 2025-4-18 02:50:07  
 
 
 ## [TG账号商店 ](https://shop.nodeshare.xyz/) ---专住于海外社交账号的零售批发，包括电报Telegram，小火箭独享账号，苹果各国ID推特Twitter、脸书Facebook、谷歌邮箱Gmail、Instagram、海外版抖音TikTok等账号的批发零售
@@ -28,15 +28,7 @@
 
 ## [简介](#简介)
 
-### [KK加速](https://kkjiasu.top/#/register?code=lhGhQflc)
 
-点击注册：[点击进入](https://kkjiasu.top/#/register?code=lhGhQflc)
-
-便宜是真便宜，8 块钱买1个月，每个月 200 G 流量。自己用了一个多月，看视频完全不卡，下载游戏也很快。
-
-最大的缺点就是太便宜了
-
-* * *
 
 ### [星辰VPN](https://t.xcvpn.us/#/register?code=tLBWwhPs)
 
@@ -163,16 +155,7 @@
 
 * * *
 
-### [KK加速](https://kkjiasu.top/#/register?code=lhGhQflc)
 
-点击注册：[点击进入](https://kkjiasu.top/#/register?code=lhGhQflc)
-
-
-便宜是真便宜，8 块钱买1个月，每个月 200 G 流量。自己用了一个多月，看视频完全不卡，下载游戏也很快。
-
-最大的缺点就是太便宜了
-
-* * *
 
 
 
